@@ -1,2 +1,2 @@
 # querio-oss
-querio.ai
+BUY NOW >>> [querio.ai] (https://www.querio.ai) <<<
