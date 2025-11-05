@@ -1,0 +1,2 @@
+# querio-oss
+querio.ai
